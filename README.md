@@ -37,6 +37,6 @@ I'm a software engineer and developer passionate about building real-world solut
 ### 📫 Let's Connect
 
 Got a project idea or just want to say hi?
-- Email: babarahmed787@gmail.com
+- Email: babarahmed787@gmail.com | support@veoluxai.com
 
 Thanks for stopping by! 🚀
